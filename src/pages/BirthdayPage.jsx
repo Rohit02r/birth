@@ -99,7 +99,7 @@ May laughter, love and beautiful memories fill your day.
 <h3>💌 A Special Message</h3>
 
 <p>
-Intha nerathuku kandu pidichitu irupa itha yar itha pannaganu, i wanted you to be happy, keep similing once again wishing you the Happy 18th , keep Glowing ❤️, azhagi❣️❣️❣️
+Intha nerathuku kandu pidichitu irupa itha yar itha pannaganu, i wanted you to be happy, keep similing once again wishing you the Happy 18th , keep Glowing ❣️❣️❣️
 </p>
 
 </div>
